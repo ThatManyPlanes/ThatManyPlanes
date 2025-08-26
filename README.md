@@ -1,5 +1,10 @@
-## THE NUMBER 1 JUKEBOXERS FAN !!!
+⊱ ─── ⋅ʚ♡ɞ⋅ ─── ⊰
 
-![image alt](https://github.com/ThatManyPlanes/ThatManyPlanes/blob/main/Untitled34_20250724202136.png?raw=true)
+" Oh my gosh . "
+![image alt](https://github.com/ThatManyPlanes/ThatManyPlanes/blob/main/Untitled48_20250825200813.png)
 
-Read Rentry for info !!
+Soep / Plane ☆ Conical { Matching w/ bendlcion }
+
+#1 Plane fan !! ☆ Any  All  Every
+
+. ˚₊ C+H Friend ☆ !
